@@ -1,1 +1,0 @@
-# Jakubkartal.github.io
